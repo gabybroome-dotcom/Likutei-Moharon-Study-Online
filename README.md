@@ -1,1 +1,1 @@
-# Likutei-Moharon-Study-Online
+#Living-with-likutei-moharan.md 
